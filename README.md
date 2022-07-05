@@ -32,11 +32,7 @@ Soy una persona responsable, comprometida, exigente conmigo misma, lo que me lle
 ### Fotos Trabajos Magister 
 
 
-
-
-
-
-
+![Image10 1 (1)](https://user-images.githubusercontent.com/108349719/177230989-6ad8ef06-1ea5-4821-a996-1fa2d0e26f20.png)
 
 
 ## Contacto 
