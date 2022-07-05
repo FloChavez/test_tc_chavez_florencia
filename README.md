@@ -39,7 +39,7 @@ Soy una persona responsable, comprometida, exigente conmigo misma, lo que me lle
 * Telefono: +569 82478560
 * Mail: flchavez@alumnos.uai.cl
 * Dirección: Camino del Roble 1334, Huechuraba, Santiago
-* LinkedIn: https://www.linkedin.com/in/florenciachávez/
+* [LinkedIn](https://www.linkedin.com/in/florenciachávez/)
 
 
 
